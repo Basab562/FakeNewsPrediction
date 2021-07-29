@@ -1,4 +1,0 @@
-# FakeNewsPrediction
-
-
-vhvhvvh
